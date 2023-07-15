@@ -2,7 +2,7 @@
 
 大陆地址  : https://lsp666.pse.is/4vfyp4
 
-大陆備用地址 : https://to.xingtvyyds.com/4vfyp4 
+大陆备用地址 : https://to.xingtvyyds.com/4vfyp4 
 
 海外永久地址  : https://xingtv.co/
 
@@ -16,4 +16,4 @@
 地址3 :
 
 若网域皆无法使用可以发送任意邮件到18xingtv@gmail.com
-广告咨询联系：18xingtv@gmail.com
+广告咨询纸飞机：@xx_pipi
